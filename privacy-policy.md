@@ -63,4 +63,4 @@ This policy is effective as of 2022-01-22
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at kahandapp@gmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at kahandapp@gmail.com
